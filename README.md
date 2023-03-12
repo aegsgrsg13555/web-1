@@ -8,7 +8,7 @@
 >- **[Weekly Summary](#weekly-summary)**
 ---  
 ## Bio  
->**Name:李承恩**  
+>**Name:李宸逸**  
 >**School:國立臺灣師範大學(NTNU)**  
 >**Class:科技系二年級**  
 
